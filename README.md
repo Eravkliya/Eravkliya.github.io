@@ -1,1 +1,1 @@
-# Eravkliya.github.io
+https://Eravkliya.github.io/laba1&2
